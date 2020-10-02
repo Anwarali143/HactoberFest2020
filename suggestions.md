@@ -31,4 +31,8 @@ I [Niharika](https://gitHub.com/Niharikaponugoti) suggest you to Learn by doing.
 
 I  [chandrasangna](https://github.com/shruthi-kotawar) suggest you Starting your software development career can be scary,but also very exciting
 
+
 I. [srujana](https://GitHub.com/srujana-55) suggest you don't be affraid from coding just you have to start from base learning.
+
+
+I [Anwar Ali](https://gitHub.com/Anwarali) suggest you to be a good Lerner. 
